@@ -1,5 +1,5 @@
 # 🐧 About Me:
-👋 Hi, I’m Mathéo A.<br><br>🎮 Founder of Penguin Studio — building immersive worlds in the Metaverse.<br>🚀 10 000+ unique monthly players.<br>🤝 External Vice-President @ Junior Conseil UTT — partnerships, prospection, and representing the JE ecosystem.<br>🎓 Engineering student at UTT — Computer Science & Information Systems.<br><br>
+👋 Hi, I’m Mathéo<br><br>🎮 Founder of Penguin Studio — building immersive worlds in the Metaverse.<br>🚀 10 000+ unique monthly players.<br>🤝 External Vice-President @ Junior Conseil UTT — partnerships, prospection, and representing the JE ecosystem.<br>🎓 Engineering student at UTT — Computer Science & Information Systems.<br><br>
 
 ## 🌍 What I Do<br>
 <br>🕹️ Create interactive experiences & virtual worlds.<br>📈 Develop partnerships and lead external strategy.<br>📚 Write science books mixing clarity, curiosity and a touch of adventure.<br>💡 Blend creativity, tech and entrepreneurship to build ambitious projects.<br>
